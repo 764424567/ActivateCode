@@ -1,0 +1,4 @@
+## VMware虚拟机激活码
+
+UG5J2-0ME12-M89WY-NPWXX-WQH88
+
