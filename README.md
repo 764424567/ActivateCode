@@ -6,7 +6,7 @@
 
 Jetbrains注册码：https://github.com/764424567/ActivateCode/blob/main/PyCharmKey.md
 
-IDEA2019注册码：https://github.com/764424567/ActivateCode/blob/main/IDEA 2019.md
+IDEA2019注册码：https://github.com/764424567/ActivateCode/blob/main/IDEA%202019.md
 
 IDM注册码：https://github.com/764424567/ActivateCode/blob/main/IDM.md
 
